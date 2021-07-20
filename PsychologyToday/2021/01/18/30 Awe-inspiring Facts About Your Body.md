@@ -33,3 +33,23 @@ Here are 30 awe-inspiring facts from *The Body: A Guide For Occupants*.
 9.Percentage of DNA that humans share: 99.9. And yet, no two humans are quite like each other, thanks to the differences between our DNAs in 3-4 million places.
 
 10.Number of microbes that call you their home: many trillions. Taken together, they weigh about 3 pounds or as much as your brain. There are 40,000 species of microbes that dwell in you (900 species in your nostrils; 800 inside your cheeks; 1300 on your gums; 36,000 in your gastrointestinal tract). Most microbes are benign. So far, only 1415 have been identified with the potential to make humans ill. To your microbes, you are not a person, writes Bryson, but a world——"a vast and jouncing wealth of marvelously rich ecosystems with the convenience of mobility thrown in, along with the very helpful habits of sneezing, petting animals and not washing quite as fastidiously as you really ought to."
+
+11.Number of bacteria you are swapping from mouth to mouth during a passionate kiss: 1 billion. In addition to protein(0.7 mg), salt(0.45 mg), fat(0.7 mcg) and bits of food(0.2 mcg).
+
+12.The percentage of water that makes up your brain: 75-80 percent. The rest of your brain is composed of fat and protein.
+
+13.The amount of information your brain goes through in 30 seconds: more than what the Hubble Space Telescope processes in 30 years.
+
+14.The amount of information the brain can store: 200 exabytes. According to neuroscientists, that is about as much as "the entire digital content of today's world". Take a morsel of cortex as small as a grain of sand, and it can hold the equivalent of all the movies ever made. Trailers included, Bryson adds.
+
+15.The percentage of your body's energy that is used by your brain: 20 percent. That is a lot, considering that your brain makes up 2 percent of your body weight. However, the brain requires only about as many calories as there are in a blueberry muffin(400 cal) to manage its daily operatioins. "Try running your laptop for 24 hours on a muffin and see how far you get".
+
+16.Number of neurons in the brain: 86 billion.
+
+17.Number of synaptic connections the brain makes: many trillions. When each one of the 86 billion neurons connects with a myriad of other neurons, they form synaptic connections. According to neuroscientist David Eagleman, one cubic centimeter of brain tissue contains the same amount of those connections as there are stars in our galaxy. "It is in all that complex synaptic entanglement that our intelligence lies, not in the number of neurons, as was once thought".
+
+18.The amount of saliva a typical adult secrets per day: about 1.5 liters. That makes it to 30,000 liters in a lifetime. Or, "as much as you would get in 200 deep baths," writes Bryson Gulp.
+
+19.The amount of distance sneeze droplets can travel: 8 meters. Moreover, these droplets can stay suspended in the air for 10 minutes before settling on surfaces.
+
+20.The number of chemical compounds contained in exhalations: 150. Consider the first exhalations of the day, as the sun dawns and the birds burst into their morning songs. "Among the common chemicals that help to create morning mouth are methyl mercaptan(which smells like old cabbage), hydrogen sulphide(like rotten eggs), dimethyl sulphide(slimy seaweed), dimethylamine and trimethylamine(rank fish)". Morning breath might lose its magic as the day wears on, but the bacteria in our mouth show no sign of surrendering their gusto. By the time you are blowing out candles on a birthday cake, you are increasing the coverage of bacteria on the cake by 1,400 percent.
