@@ -53,3 +53,23 @@ Here are 30 awe-inspiring facts from *The Body: A Guide For Occupants*.
 19.The amount of distance sneeze droplets can travel: 8 meters. Moreover, these droplets can stay suspended in the air for 10 minutes before settling on surfaces.
 
 20.The number of chemical compounds contained in exhalations: 150. Consider the first exhalations of the day, as the sun dawns and the birds burst into their morning songs. "Among the common chemicals that help to create morning mouth are methyl mercaptan(which smells like old cabbage), hydrogen sulphide(like rotten eggs), dimethyl sulphide(slimy seaweed), dimethylamine and trimethylamine(rank fish)". Morning breath might lose its magic as the day wears on, but the bacteria in our mouth show no sign of surrendering their gusto. By the time you are blowing out candles on a birthday cake, you are increasing the coverage of bacteria on the cake by 1,400 percent.
+
+21.Number of tastebuds in the body: 10,000. While most of them are located on our tongues, there are also taste receptors on the roof of the mouth, in the throat, gut, heart, lungs, and even testicles. "No one knows  quite what they are doing there," writes Bryson.
+
+22.The amount of time it takes for taste buds to get replaced: 10 days.
+
+23.Number of times your heart beats per day: 100,000. That makes to about 3.5 billion times in a lifetime.
+
+24.The amount of blood your heart dispenses per hour: 260 liters. "It has been calculated that during the course of a lifetime the heart does an amount of work sufficient to lift a one-ton object 150 miles into the air".
+
+25.The percentage of blood that is pumped out of the heart that goes to the brain: 15 percent. The greatest amount of pumped blood goes to the kidneys(20 percent).
+
+26.The amount of time it takes for blood to complete the journey around your body: 50 seconds.
+
+27.The number of times you breathe in and out every day: about 20,000. You process 12,500 liters of air daily. In a year you take 7.3 million breaths. That's about 550 million breaths over the course of a lifetime. 550 million breaths, 550 million gifts.
+
+28.The number of oxygen molecules you exhale with each breath: 25 sextillions(2.5 X 10 to the power of 22). "With a day's breathing, you will in all likelihood inhale at least one molecule from the breaths of every person who has ever lived. And every person who lives from now until the sun burns out will from time to time breathe in a bit of you. At the atomic level, we are in a sense eternal".
+
+29.The speed at which nerve signals move: 120 meters a second(270 miles an hour). That is 2.5 million times slower than the speed of light.
+
+30.The amount of our lives we spend asleep: one third.
