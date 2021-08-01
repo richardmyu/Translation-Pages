@@ -25,3 +25,16 @@ Relationship scientists strive to identify the patterns that predict healthy rel
 But did you know phones can be used to improve relationships? Sending positive text message can boost relationship satisfaction (Luo & Tuney, 2015), a simple step that can support the health and wellness of your relationship.
 
 3.**Foster psychological flexibility**. It's easy to rigidly want what you want and make demands, but research suggests that couples —— and families —— do better when people practice psychological flexibility. Being open, aware, considering the context, and keeping perspective all go a long way in reducing negativity(and not escalating problems). Fortunately, psychological flexibility can be developed with practice.
+
+4.**Get to know each other in a new way**. When was the last tiem you and your partner talked one-on-one about your fears, joys, memories, or hopes? When chatting about casual topics or day-to-day plans becomes routine, consider introducing an intimacy builder through conversation.
+
+A classic study showed that couples who engage in self-disclosing conversation experience an increase in feelings of closeness relative to those who engage in small-talk(Aron, Aron, Vallone, & Bator, 1997). Perhaps fall in love all over again by asking each other intimate questions, engaging in authentic self-disclosure, and responsively attending to each other's responses.
+
+5.**Reminisce about the funny times**. Not every day is an exciting day in the life of a relationship, but we do have memories that we can call upon, no matter what the circumstances. Research suggests that  couples who spend time reminiscing about laughing together reported higher relatinoship satisfaction than those couples who reminisced about other memories(Bazzini, Stack, Martincin, & Davis, 2007). So dig through the memory archive, and when your relationship needs a boost, share a conversation about times that had you laughing.
+
+
+6.**Feel and express gratitude**. Relationships are built on small behaviors, and gratitude is a wonderful example of a small but powerful behavior that can make a positive difference in relationships. To feel gratitude requires noticing what your partner does for you, your family, or your relationship; it's an other-oriented emotion.
+
+When people express gratitude to their partners, it produces a cascade of positive outcomes(Algoe, Gable, & Maisel, 2010). Their partners feel connected and more satisfied in the relationship, and gratitude increases their work to improve the relationship(Gordon, Impett, Overis, & Keltner, 2012).
+
+Relationships are not static. Paying attention to patterns in your relationship can give you insight into your dynamic, and if it's a good relationship but could be better, then small steps like the ones listed above may help. Infusing behaviors that foster closeness and responsiveness can support strong relationship funcitoning.
