@@ -1,12 +1,18 @@
 ## When Is the Best Time to Meditate for Better Sleep
 
+睡前冥想的最佳时间是什么时候？
+
 ###### A sleep expert explains why meditating yourself to sleep doesn't work.
+
+一个睡眠专家解释：为什么冥想对你的睡眠没有帮助。
 
 [link](https://www.psychologytoday.com/intl/blog/think-act-be/202101/when-is-the-best-time-meditate-better-sleep)
 
 If you struggle with insomnia, you've probably tried just about everything to fall asleep-including meditaion. It seems like a reasonable solution, since meditation is known to lower stress, quiet the mind, and calm the nervous system. You might have even struggled to stay awake when practicing meditation during the day, so why not use this soporific at bedtime?
+如果你有严重的失眠症状，或许你尝试过调节一切与入睡有关的事物，包括冥想。冥想看起来是一个合适的方法，众所周知，冥想让你有更低的压力感，静心，清除杂绪。你甚至可能在练习冥想的时候，努力去保持清醒，那为什么不在睡觉时间用上安眠药呢？
 
 Maybe you tried meditating in bed, but for some reason it didn't work. Or maybe it seemed to help the first night, and you hoped against hope that you'd cured your sleep troubles. But it didn't help the next night, and now it's helpful only occasionally, like everything else you've tried.
+也许你在床上试过冥想，但出于某些原因，没有效果。又或者它在第一个晚上是有效果的，然后让你<s>一次又一次的希望</s>对治疗你的睡眠问题抱有一丝希望。但在下一个夜晚它失效了，现在看起来它的作用是偶然的，就行其它你所尝试过的方法一样。
 
 ### Trying Too Hard
 
@@ -50,7 +56,29 @@ A practice in mindful presence, along with these other practices, was one of the
 
 ---
 
-Meditate:
+Meditate
   v.冥想；沉思；考虑；暗自策划；
   网络.反省；深思；默想；
 
+insomnia
+  n.失眠（症）；
+
+soporific
+  adj.催眠的；让人瞌睡的；
+  n.安眠药；
+  网络.催眠药；催眠剂；想睡的；
+
+cure
+  n.固化；治愈；治疗；对策；
+  v.治愈；救治；
+
+---
+
+struggle with
+  网络.与...斗争；与...作斗争；
+
+be known to be/do sth
+  众所周知
+
+hope against hope
+  抱一线希望
